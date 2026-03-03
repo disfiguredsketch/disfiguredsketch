@@ -5,5 +5,5 @@
 </p>
 
 <p align="center">" YOU WERE BEAUTIFUL. "</p>
-<p align="center">wip ok? ok</p>
+<p align="center">kindly asking that you read my strawpage and any other links i may have linked</p>
 
