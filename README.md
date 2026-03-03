@@ -1,4 +1,4 @@
-<h1 align="center">[ Gunner + Nicknames * He/They]</h1>
+<h1 align="center">[ Gunner + Nicknames ]</h1>
 
 
 <p align="center"> <img src="https://media1.tenor.com/m/LeXwc4xju2QAAAAC/walten-files.gif">
