@@ -5,5 +5,5 @@
 </p>
 
 <p align="center">" YOU WERE BEAUTIFUL. "</p>
-<p align="center">" wip ok? ok "</p>
+<p align="center">wip ok? ok</p>
 
