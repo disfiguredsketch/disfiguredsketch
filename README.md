@@ -5,5 +5,13 @@
 </p>
 
 <p align="center">" YOU WERE BEAUTIFUL. "</p>
-<p align="center">kindly asking that you read my strawpage and any other links i may have linked</p>
+<p align="center">read my straw :] sign my other one!! (gunnersgimmickhoard) </p>
+
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=disfiguredsketch" alt="DEAD." />
+</div>
+
+
+
+
 
