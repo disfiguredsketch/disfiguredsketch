@@ -1,8 +1,9 @@
-## **" i'll fix you. "**
+<h1 align="center">[ Gunner + Nicknames * He/They]</h1>
 
-<img src="https://media1.tenor.com/m/LeXwc4xju2QAAAAC/walten-files.gif">
+
+<p align="center"> <img src="https://media1.tenor.com/m/LeXwc4xju2QAAAAC/walten-files.gif">
 </p>
 
-**" YOU WERE BEAUTIFUL. LET ME FIX YOU. "**
+<p align="center">" YOU WERE BEAUTIFUL. "</p>
+<p align="center">" wip ok? ok "</p>
 
-links wip :] 
