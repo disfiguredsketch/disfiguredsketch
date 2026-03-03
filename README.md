@@ -3,6 +3,6 @@
 <img src="https://media1.tenor.com/m/LeXwc4xju2QAAAAC/walten-files.gif">
 </p>
 
-**" you were beautiful. you were beautiful. you were beautiful. "**
+**" YOU WERE BEAUTIFUL. LET ME FIX YOU. "**
 
 links wip :] 
