@@ -8,9 +8,5 @@
 <p align="center">" if i died, dead and gone, would u miss me?? "</p>
 <p align="center">sign my straw!! (gunnersgimmickhoard) </p>
 
-<div align="center">
-  <img src="https://komarev.com/ghpvc/?username=disfiguredsketch" alt="DEAD." />
-</div>
-
 
 
