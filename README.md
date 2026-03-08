@@ -1,7 +1,4 @@
-<h1 align="center">[ Gunner + Nicknames ]</h1>
-
-
-<p align="center"> <img src="https://64.media.tumblr.com/941f0f7af126aeb61ebbc800dcfb57c8/6690665a0e6de99a-d2/s400x600/d259baf92d5f51afa01673d535ce6ec6bdd99076.pnj">
+<p align="center"> <img src="https://64.media.tumblr.com/c7392828f7f7f366e8d85fc254d0f911/dbddd5f48348fa33-16/s400x600/a21b4c40ac1ea76a21afac75e89ba8f8c14afdf9.pnj">
 </p>
 
 
