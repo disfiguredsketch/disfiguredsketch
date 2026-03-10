@@ -2,7 +2,7 @@
 </p>
 
 
-<p align="center">sign my straw!! (gunnersgimmickhoard) </p>
+<p align="center">sign my ata/straw!! </p>
 
 
 
