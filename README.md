@@ -1,6 +1,6 @@
-<p align="center"> <img src="https://64.media.tumblr.com/b8cce00d71a596c1c6892c9e858ec039/20a4647afa2cae50-ce/s2048x3072/d2b38ef012c17b1933909e61619048587a4e1ceb.pnj" />
+<p align="center"> <img src="https://i.pinimg.com/736x/90/b6/8f/90b68f9693fe6a2b1a33de57031cb023.jpg" width="50%">
 </p>
-<p align="center">"your attempts to appear superior are ammusing. you are no better than me."</p>
+                     
 <p align="center">[click around :)] </p>
 
 
